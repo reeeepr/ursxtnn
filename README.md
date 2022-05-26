@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ursxtnn
-- 👀 I’m interested in skating, Gaming, Developing.
+- 👀 I’m interested in Investing/Online Business Creation, Gaming, & Developing.
 - 🌱 I’m currently learning ... CS, Javasript along with LUA.
 - 💞️ I’m looking to collaborate on Future projects within FiveM's Platform
 - 📫 How to reach me ... Discord: '.#0999 email: dominicvc0819@gmail.com
